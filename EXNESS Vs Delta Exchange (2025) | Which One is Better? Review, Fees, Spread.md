@@ -8,6 +8,7 @@ This in-depth comparison will cover all the essential aspects: trading platforms
 [✅ Click Here To Register On Exness 👈](https://one.exnesstrack.org/boarding/sign-up/a/newup2)
 
 [✅ Click Here to Visit Broker Exness 👈](https://one.exnesstrack.org/a/newup2)
+
 ---
 
 ## Company Background
