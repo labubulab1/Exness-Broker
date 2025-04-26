@@ -255,7 +255,7 @@ Both **EXNESS** and **Pepperstone** are excellent choices in 2025 — but each h
 
 - ✅ **Choose Pepperstone** if you prefer **institutional speed**, **powerful platforms**, and **deep research tools**.
 
-💥 If Choose Pepperstone: [Go to Broker]ư(https://trk.pepperstonepartners.com/aff_c?offer_id=367&aff_id=33954) 👈
+💥 If Choose Pepperstone: [Go to Broker](https://trk.pepperstonepartners.com/aff_c?offer_id=367&aff_id=33954) 👈
 
 **Pro Tip:** Open demo accounts with both and compare how they perform with your live strategy.
 
