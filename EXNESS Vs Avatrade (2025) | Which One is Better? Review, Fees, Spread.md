@@ -248,5 +248,5 @@ In conclusion, **EXNESS** excels in offering **low spreads**, **high leverage**,
     
 ---
 
-Make the best decision for your trading future! If you’re ready to take the next step, **[sign up now with EXNESS]https://one.exnesstrack.org/boarding/sign-up/a/newup2) or Avatrade** to start trading today! 🚀📈
+Make the best decision for your trading future! If you’re ready to take the next step, **[sign up now with EXNESS](https://one.exnesstrack.org/boarding/sign-up/a/newup2) or Avatrade** to start trading today! 🚀📈
 
