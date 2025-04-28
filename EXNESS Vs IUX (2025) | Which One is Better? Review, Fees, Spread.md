@@ -138,7 +138,7 @@ However, **EXNESS** stands out with their **WebTerminal** and exclusive AI-based
 | Broker | Regulatory Bodies |
 |:--|:--|
 | EXNESS | FCA (UK), CySEC (Cyprus), FSCA (South Africa) |
-| IUX | MWALI International Services Authority (Comoros) |
+| IUX | ASIC (AUSTRALIA), FSC (Mauritius) |
 
 🔒 **Security Tip**: EXNESS is heavily regulated and thus slightly *safer* for ultra-large account holders (> $100k). IUX, while legitimate, is more relaxed, catering to everyday traders.
 
